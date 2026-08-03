@@ -1,3 +1,3 @@
 # Start your contribution from here
 
-- rahul kothuri (rahulkothuri67@gmail.com)
+Yamini Kolkar | yaminikolkar2006@gmail.com
